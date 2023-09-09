@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @piitmojr
+- 👀 I’m interested in data and process it
+- 🌱 I’m currently learning in the uneversity
